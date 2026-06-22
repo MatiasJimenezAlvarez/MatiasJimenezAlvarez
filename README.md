@@ -6,7 +6,7 @@
  🎓 INGENIERO INFORMÁTICO
 💻 Desarrollador full-stack e IA developer
 
-📫 Contacto: **matisja10@hotmail.com**  
+📫 Contacto: **matisja10@hotmail.com**  +56932224141
 </div>
 <br>
 
